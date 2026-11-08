@@ -1,0 +1,8 @@
+title: An example for testing only.
+author: Jane Austen
+description: A classic novel of manners.
+language: en
+cover: images/cover.jpg
+chapters:
+  - 'Chapter 1': 01.md
+  - 'Chapter 2': 02.md
