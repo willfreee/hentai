@@ -1,24 +1,6 @@
-# The Easy Way to Quit Hentai Addiction
+# willfreee from hentai
 
-## About This Book
-
-This is not a book about willpower. It's not about blocking software, streak counters, accountability partners, or "coping strategies." It's not about fighting yourself.
-
-It's about understanding.
-
-If you feel trapped in compulsive hentai consumption—if you've tried to quit and found yourself back at the screen, again and again, despite genuinely wanting to stop—this book is for you. It will not ask you to be stronger. It will not ask you to suffer through deprivation. It will ask you to see clearly what's actually happening: a psychological trap, built from illusions, that can be dismantled from the inside.
-
-By the time you finish reading, you will not need to fight the desire. You will no longer have it.
-
-## How to Read This Book
-
-1. **Do not try to quit while reading.** Continue as you are. The book works by dismantling the beliefs that make hentai seem valuable—and you need to observe the behavior while those beliefs are still active.
-
-1. **Read in order.** Each chapter builds on the previous one. The arguments are cumulative. By the final chapters, the full picture will be clear.
-
-1. **There is a final session.** Near the end of the book, you'll be guided through one last session—not as a farewell ritual, but as a dissection. You'll watch the trap operate one final time, with the lights on, knowing it has already been dismantled in your mind.
-
-1. **You will write a letter to yourself.** The final chapter is not written by the author. It's written by you. This letter becomes your permanent anchor—a document, in your own words, that will outlast any momentary echo of the old illusion.
+This is a book about understanding.
 
 ## Acknowledgments
 
